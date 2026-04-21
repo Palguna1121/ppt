@@ -4,9 +4,9 @@ Selamat datang di repositori desain kreatif! Di sini, Anda dapat menemukan berba
 
 ## 📂 list ppt
 
-### sie acara techfest 2025
+### klik disini
 
-[![sie acara techfest 2025](https://img.shields.io/badge/Canva-%2300C4CC.svg?style=for-the-badge&logo=Canva&logoColor=white)](https://www.canva.com/design/DAGfG54Z0jc/dXxBWoUwuc25xrj4WP4j5w/edit?utm_content=DAGfG54Z0jc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[![klik disini](https://img.shields.io/badge/Canva-%2300C4CC.svg?style=for-the-badge&logo=Canva&logoColor=white)](https://canva.link/7wfvwj2j9u70ew1)
 
 ---
-© 2025 Desain Kreatif. Dibuat dengan ❤️ menggunakan [Canva](https://www.canva.com).
+© 2025 Desain Kreatif. Dibuat dengan ❤️ menggunakan [AI](https://www.canva.com).
